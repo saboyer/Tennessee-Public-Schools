@@ -1,1 +1,1 @@
-# Tennessee-Public-Schools
+# Tennessee Public Schools
